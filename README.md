@@ -1,0 +1,1 @@
+# CorelDRAW_Graphics_Suite_Crack
